@@ -1,0 +1,1 @@
+# snigdha-grub-theme
